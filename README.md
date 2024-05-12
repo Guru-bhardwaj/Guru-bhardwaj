@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Guru-bhardwaj
+- 👋 Hi, I’m @Gaurav Bhardwaj
 - 👀 I’m interested in Table tennis
-- 🌱 I’m currently learning Automaion Testing
+- 🌱 I’m currently learning Automaion Testing.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me _gauravbhardwaj
+- 📫 How to reach me via insta _gauravbhardwaj
 - 😄 Pronouns: Thanu
 - ⚡ Fun fact: Enjoy your life !!!
 
